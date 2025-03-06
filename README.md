@@ -1,2 +1,0 @@
-# forADG
-for ADG recruitment
